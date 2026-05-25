@@ -1,4 +1,4 @@
-# <img width="40" height="40" alt="ZREX_FAVICON" src="https://github.com/user-attachments/assets/ae635578-65a4-4bc9-8492-764800564914" /> ZREX · ARCHIVE
+# ZREX · ARCHIVE
 
 Strategic design that does more than look good - it drives real business growth. I craft thoughtful brand and digital experiences that attract the right audience and build trust. 
 Every element is designed with purpose, helping turn visitors into engaged customers and lasting sales.
